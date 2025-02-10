@@ -29,6 +29,6 @@
 
 ## 🚀 How to Reach Me
 💼 **[LinkedIn](https://www.linkedin.com/in/arko-mallick/)**  
-📧 **arko336@email.com**  
+📧 **arko.mallick336@gmail.com**  
 
 Let's connect and collaborate on data-driven projects! 🚀
